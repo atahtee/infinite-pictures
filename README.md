@@ -1,1 +1,1 @@
-# infinite-picturessss
+# infinite-pictures
